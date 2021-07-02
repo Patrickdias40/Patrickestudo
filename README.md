@@ -12,6 +12,7 @@ Estou aprendendo, não sei é nada. Oh, que legal! :)
 Então eu intrei para o CTISM que estou fazendo tecnico em informatica em 2020. Atualmente não sei o que irei seguir como profição mas tenho em mente seguir no ramo de informatio ou em Marketing mais especifico social media.
 
 Eu gosto de esportes, mesmo não práticando como deveria, no momento. Os que eu mais gosto é montun bike, rafting, motocros, rapel, todos que envolve notureza. Por mais que ainda não pratico a praticamnete todos, sei que irei independende com o que vou trabalhar.
+
 Esportes eletronicos também gosto e muito, prefirindo battle royale.
 
 ### Redes Sociais 
