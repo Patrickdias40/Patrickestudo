@@ -1,8 +1,7 @@
 # Oi, sou Patrick! :) 
 ####  Esses são meus primeiros passos no github, até o inicio de 2023 usarei essa conta somente para estudos que estejam relacionados ao CTISM, a escola que estou atualmente (2021 - Veterano).
-##### ---
+---
 **Fazer esta página é meu primeiro trabalho, mas sem saber o que fazer irei tentar fazer algua coisa.**
-
 **Estou aprendendo, não sei é nada. Oh, que legal! :)**
 
 Então eu intrei para o CTISM que estou fazendo tecnico em informatica em 2020. Atualmente não sei o que irei seguir como profição mas tenho em mente seguir no ramo de informatio ou em Marketing mais especifico social media.
