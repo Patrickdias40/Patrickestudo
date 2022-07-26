@@ -22,7 +22,7 @@ Eu gosto de esportes, mesmo não práticando como deveria, no momento. Os que eu
 
 # Fazer - agora
 
-* Código do estágio
+* [Código do estágio](https://github.com/Patrickdias40/Projeto_estagio_1_Andre)
 * Python crawler - BD
 
 Mais relevante agora, que está relacionado ao técnico
